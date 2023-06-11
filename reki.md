@@ -1,0 +1,2 @@
+EVREKI WAN
+kelas a2
